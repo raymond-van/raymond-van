@@ -8,6 +8,3 @@ Outside of technology, you might catch me hitting the gym for a workout session 
 #### 💻 Coding Goals for 2024
 - Contribute to an open source Machine Learning project
 - Build an app with commercial potential
-#### 📫 Get in touch
-- vraymond028@gmail.com
-- [LinkedIn](https://www.linkedin.com/in/vraymond028/)
