@@ -6,4 +6,4 @@ I'm deeply fascinated about technology and how it can be used to positively impa
 
 Outside of tech, you might catch me hitting the gym for a workout session 🏋️, diving into a captivating book 📚, or unwinding with a good TV show or movie 📺.
 
-#### 📧 Get in touch: vraymond028@gmail.com
+#### 📧 Get in touch: raymondxvan@gmail.com
